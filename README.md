@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nesOPG
+- 👀 I’m interested in ... Coding/Modding
+- 📫 How to reach me ... Email
